@@ -1,2 +1,2 @@
-# GlandSpace-software-Solutions
+# GladSpace-software-Solutions
 who we are 
